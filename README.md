@@ -1,1 +1,2 @@
-# Fusi-n-de-los-ferrocarriles-Sud-y-Oeste-
+# Fusión-de-los-ferrocarriles-Sud-y-Oeste-
+La solicitud de fusión de los ferrocarriles Sud y Oeste intentada en 1912 es en este sentido típica, Formulada ante el Congreso Nacional, éste impuso como condición la construcción de 1.500 km de vías dentro del territorio provincial; pero adelantándose a la sanción de este proyecto la Legislatura de La Plata aprobaba el suyo en el cual expresaba el propósito de construir ampliaciones y derivaciones de su línea a Meridiano V en la extensión de 4.000 km; los ramales ahí incluidos se hallaban diseminados en todos los rumbos del territorio provincial tan generosamente que no quedaban, no digamos para el F.C.S., sino para ninguna otra empresa, posibilidad alguna de futuros desarrollos. 
